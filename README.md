@@ -1,0 +1,2 @@
+# postproperty
+Residential apartment for rent.Located in scheme no 136,gulmohar complex. It is a semifurnished property.The property has 2 bedrooms with 2 bathrooms. Property is built in 150.00 sq.Ft.(Builtup area) available at an expected price of rs 8000. Located on 4th floor out of the 6 the property comes with a good construction quality which ages less then 1 year old property. With all facilities such as lift,car parking,play area,CCTV camera,24 Hr backup electricity,waste disposal,Maintenance staff.
